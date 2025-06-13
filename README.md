@@ -21,4 +21,4 @@ Here are a few highlights from my portfolio:
 - 📍 Berlin, Germany
 - ✉️ [can.ozkan.de@gmail.com](mailto:can.ozkan.de@gmail.com)
 - 🔗 [LinkedIn](https://linkedin.com/in/can-ozkan-82527338)
-- 📋 [CV](https://drive.google.com/file/d/1g12miR1Ik-wmB3epw64UAazoQvv4jSKT/view?usp=sharing)
+- 📋 [CV](https://drive.google.com/file/d/1CUb02__KBhB2GUoIPr4qD7HOUINgH-Ix/view?usp=sharing)
